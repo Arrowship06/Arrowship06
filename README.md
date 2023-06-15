@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Arrowship06
 - 👀 I’m interested in Coding.
-- 🌱 I’m currently learning how to build websites.
+- 🌱 I’m currently working on an internship
 - 💞️ I’m looking to collaborate on...
 - 📫 How to reach me... don't (he says ominously).
 
